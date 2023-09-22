@@ -1,5 +1,6 @@
 ### Hi there 👋
-##### ![jpg_20230919_175605_0000 (1)](https://github.com/Milalex19/Milalex19/assets/128637462/cdfe79ad-7f2e-4154-8e73-e61e4345d16d)
+##### ![jpg_20230919_175605_0000 (1)](https://github.com/Milalex19/Milalex19/assets/128637462/33e16f1c-81bc-4606-b925-a587d59ba62a)
+
 
 <!--
 **Milalex19/Milalex19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
