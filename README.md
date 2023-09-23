@@ -1,5 +1,6 @@
 ### Hi there 👋
- ![image](https://github.com/Milalex19/Milalex19/assets/128637462/2c6b2961-d0ba-48cf-9905-5c8518ae779c)
+ ![image](https://github.com/Milalex19/Milalex19/assets/128637462/40b51d92-e48d-4294-ab42-7c4a40bcd94b)
+
 
 
 
